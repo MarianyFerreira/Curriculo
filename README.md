@@ -1,1 +1,1 @@
-Curriculo atualizado em 30/10/2015
+Curriculo atualizado em 11/08/2016
