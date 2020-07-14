@@ -1,9 +1,6 @@
 
 # Mariany Ferreira da Silva
 
-### (48) 9 9103 8821
-### fsilvamariany@gmail.com
-
 ### https://www.linkedin.com/in/mariany-ferreira-da-silva-34b7b52b/
 ### https://stackshare.io/MarianyFerreira
 
